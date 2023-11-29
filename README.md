@@ -1,1 +1,1 @@
-# psychicWarriors.github.io
+# Psychic-Warriors
